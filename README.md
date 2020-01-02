@@ -17,5 +17,6 @@ I'll be bringing a spare pair of pants as I know I'll be getting a hole-in-one!
 
 Golf attire (I'll Just be wearing chinos and a polo shirt lol)
 
+[map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
 
 Who's in?
