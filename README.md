@@ -5,7 +5,7 @@
 
 [Join this broadcast-only whatsapp group](https://chat.whatsapp.com/L9BKVnTmgAXAnZhiBaufdC)
 
-## what is the reason (for this?)
+## what is the reason (for all this?)
 
 Hi all,
 
@@ -33,10 +33,10 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | TBC | The Bell | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
 | TBC | The Ten Bells | [map](https://g.page/TheTenBellsE1?share) |
 | TBC | The Golden Heart | [map](https://goo.gl/maps/RxzWp48Pw2EVK2bL6) |
+| TBC | Commercial Tavern | [map](https://goo.gl/maps/M4BKgpEJYnJaEHuS8) |
+| TBC | Dinerama | [map](https://goo.gl/maps/mpUFMQT7wWFMxtgp7) |
+| TBC | The Old Blue Last | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
 | TBC | TBC |  |
-| TBC | TBC |  |
-| TBC | TBC |  |
-| TBC | TBC |  |
-| TBC | TBC |  |
-| TBC | TBC |  |
-| TBC | TBC |  |
+| TBC | TBC - Club??? |  |
+
+
