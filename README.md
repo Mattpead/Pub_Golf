@@ -32,7 +32,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | TBC | Swingers Bar | [map](https://goo.gl/maps/YuwrDtq9u3vu18xd9) |
 | TBC | The Bell | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
 | TBC | The Ten Bells | [map](https://g.page/TheTenBellsE1?share) |
-| TBC | TBC |  |
+| TBC | The Golden Heart | [map](https://goo.gl/maps/RxzWp48Pw2EVK2bL6) |
 | TBC | TBC |  |
 | TBC | TBC |  |
 | TBC | TBC |  |
