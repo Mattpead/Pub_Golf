@@ -1,5 +1,10 @@
 # Pub_Golf
 
+
+## Live updates
+
+[Join this broadcast-only whatsapp group](https://chat.whatsapp.com/L9BKVnTmgAXAnZhiBaufdC)
+
 Hi all,
 
 It may seem like I'm planning this a bit early. That's because I am planning this a bit early. Anyways, my birthday is next month but it's not just any old birthday; it's a REAL BIRTHDAY! The 29th of Feb is upon us. I am not as privileged as most of the world to have a birthday every year so I'm going to make this one extra special. Listen up - here's the plan:
@@ -17,6 +22,19 @@ I'll be bringing a spare pair of pants as I know I'll be getting a hole-in-one!
 
 Golf attire (I'll Just be wearing chinos and a polo shirt lol)
 
-[map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
+## The pubs
 
-Who's in?
+Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way). I'll try keep this up to date if the plan changes in the day, bookmark this page!
+
+| Arrival Time | Pub | Map link |
+| TBC | Swingers Bar | [map](https://goo.gl/maps/YuwrDtq9u3vu18xd9) |
+| TBC | The Bell | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
+| TBC | The Ten Bells | [map](https://g.page/TheTenBellsE1?share) |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
+| TBC | TBC |  |
