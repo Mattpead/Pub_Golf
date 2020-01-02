@@ -7,7 +7,7 @@ It may seem like I'm planning this a bit early. That's because I am planning thi
 ## Golf. Golf. Golf. 
 
 I'm going to book swingers mini-golf in the late lunchtime for anyone who fancies getting lucky with balls and holes.
-For anyone who wants to continue the celebrations I have prepared a plan for Pub Golf (rules found [here] (https://www.pubgolfguide.com/pub-golf-rules/) I will be providing scorecards and pencils.
+For anyone who wants to continue the celebrations I have prepared a plan for Pub Golf rules found [here] (https://www.pubgolfguide.com/pub-golf-rules/) I will be providing scorecards and pencils.
 
 Swingers is £13 a person for a round. There is a bar upstairs once we finish.
 Please remember to blow your nose beforehand as we don't want any bogies. Birdies are more than welcome 😉
