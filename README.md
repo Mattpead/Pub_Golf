@@ -22,7 +22,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 
 ## Google Maps layer
 
-[Click here](https://www.google.com/maps/d/viewer?mid=13w1lNalyaew964YJL6apaskcetZz3lqW&usp=sharing) to add all the map pins to your Google Maps in one go
+[Click here](https://www.google.com/maps/d/viewer?mid=13w1lNalyaew964YJL6apaskcetZz3lqW&ll=51.51919237297246%2C-0.07482464067948058&z=16) to add all the map pins to your Google Maps in one go
 
 ## what is the reason (for all this?)
 
