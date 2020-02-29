@@ -9,7 +9,7 @@
 
 Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way). I'll try keep this up to date if the plan changes in the day, bookmark this page!
 
-| Duration | Pub | Challenge | Map link |
+| Duration 🕘 | Pub 🍺 | Challenge 🦸‍♂️ | Map link 🗺 |
 | Unsure | Swingers Bar | Golf is the challenge | [map](https://goo.gl/maps/YuwrDtq9u3vu18xd9) |
 | 45min | The Bell | Down pint | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
 | 45min | The Ten Bells | Order drink for person to right | [map](https://g.page/TheTenBellsE1?share) |
@@ -17,7 +17,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | 45min | Commercial Tavern | No toilet! | [map](https://goo.gl/maps/M4BKgpEJYnJaEHuS8) |
 | 1hour | Dinerama | Eat food | [map](https://goo.gl/maps/mpUFMQT7wWFMxtgp7) |
 | 45min | The Old Blue Last | No challenge | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
-| 45min | The Horse and Groom | Order drink for person to left | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
+| 45min | The Horse and Groom | Strawpedo a Corona! 👀 | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
 | ? | Queen of Hoxton | shot of your choice | [map](https://goo.gl/maps/tJiL8Sg6WRP4LKdz5) |
 
 ## Google Maps layer
@@ -33,11 +33,11 @@ It may seem like I'm planning this a bit early. That's because I am planning thi
 ## Golf. Golf. Golf. 
 
 I'm going to book swingers mini-golf in the late lunchtime for anyone who fancies getting lucky with balls and holes.
-For anyone who wants to continue the celebrations I have prepared a plan for Pub Golf rules found [here](https://www.pubgolfguide.com/pub-golf-rules/) I will be providing scorecards and pencils. Please share the link to anyone who fancies joining in on the pub golf! 
+For anyone who wants to continue the celebrations I have prepared a plan for Pub Golf rules. Please share the link to anyone who fancies joining in on the pub golf! 
 
 Please remember to blow your nose beforehand as we don't want any bogies. Birdies are more than welcome 😉
 I'll be bringing a spare pair of pants as I know I'll be getting a hole-in-one!
 
 ## Dress code
 
-Golf attire (I'll Just be wearing chinos and a polo shirt lol)
+Golf attire (I'll Just be wearing chinos and a polo shirt lol 🤷‍♂️)
