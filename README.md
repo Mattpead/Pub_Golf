@@ -16,8 +16,8 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | 45min | The Golden Heart | Jagermeister + Lemonade | [map](https://goo.gl/maps/RxzWp48Pw2EVK2bL6) |
 | 45min | Commercial Tavern | No toilet! | [map](https://goo.gl/maps/M4BKgpEJYnJaEHuS8) |
 | 1hour | Dinerama | Eat food | [map](https://goo.gl/maps/mpUFMQT7wWFMxtgp7) |
-| 45min | The Old Blue Last | No challenge | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
-| 45min | The Horse and Groom | Strawpedo a Corona! 👀 | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
+| 45min | The Old Blue Last | Strawpedo a Corona! 👀 | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
+| 45min | The Horse and Groom | Take a breather | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
 | ? | Queen of Hoxton | shot of your choice | [map](https://goo.gl/maps/tJiL8Sg6WRP4LKdz5) |
 
 ## Google Maps layer
