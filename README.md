@@ -9,16 +9,16 @@
 
 Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way). I'll try keep this up to date if the plan changes in the day, bookmark this page!
 
-| Arrival Time | Pub | Par | Map link |
-| TBC | Swingers Bar | 5 | [map](https://goo.gl/maps/YuwrDtq9u3vu18xd9) |
-| TBC | The Bell | 3 | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
-| TBC | The Ten Bells | 5 | [map](https://g.page/TheTenBellsE1?share) |
-| TBC | The Golden Heart | 4 | [map](https://goo.gl/maps/RxzWp48Pw2EVK2bL6) |
-| TBC | Commercial Tavern | 3 | [map](https://goo.gl/maps/M4BKgpEJYnJaEHuS8) |
-| TBC | Dinerama | 5 | [map](https://goo.gl/maps/mpUFMQT7wWFMxtgp7) |
-| TBC | The Old Blue Last | 4 | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
-| TBC | The Horse and Groom | 5 | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
-| TBC | Queen of Hoxton | 3 | [map](https://goo.gl/maps/tJiL8Sg6WRP4LKdz5) |
+| Duration | Pub | Challenge | Map link |
+| Unsure | Swingers Bar | Golf is the challenge | [map](https://goo.gl/maps/YuwrDtq9u3vu18xd9) |
+| 45min | The Bell | Down pint | [map](https://goo.gl/maps/v7uVsGQFNNNMs7NY6) |
+| 45min | The Ten Bells | Order drink for person to right | [map](https://g.page/TheTenBellsE1?share) |
+| 45min | The Golden Heart | Jagermeister + Lemonade | [map](https://goo.gl/maps/RxzWp48Pw2EVK2bL6) |
+| 45min | Commercial Tavern | No toilet! | [map](https://goo.gl/maps/M4BKgpEJYnJaEHuS8) |
+| 1hour | Dinerama | Eat food | [map](https://goo.gl/maps/mpUFMQT7wWFMxtgp7) |
+| 45min | The Old Blue Last | No challenge | [map](https://goo.gl/maps/WguKYDaeFB5xicGS8) |
+| 45min | The Horse and Groom | Order drink for person to left | [map](https://goo.gl/maps/oog9RDtYShPXNkQd9) |
+| ? | Queen of Hoxton | shot of your choice | [map](https://goo.gl/maps/tJiL8Sg6WRP4LKdz5) |
 
 ## Google Maps layer
 
